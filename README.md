@@ -1,11 +1,11 @@
 # Tools And Sites
 Password RAR is :- JokerCrax
 __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __
-All current links are updated in case of failure
-in addition to that
-new links will be added for each new Tutorial Upload on the site
+All current links are updated in case of failure,
+in addition to tha,
+😎new links will be added for each new Tutorial Upload on the site😎
 
-😎<Enjoooooooy/>😎
+
 __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __
 Package Versions Openbullet :- https://short.food-royal.com/d0SoKVCf
 __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __ __
